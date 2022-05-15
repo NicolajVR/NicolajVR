@@ -8,7 +8,7 @@
 * I love computers!💻
 * Spending time outside in the wild is a passion!🌲🥾
 * Collecting data in photographs!😉📸
-* Workout is self exspansion!💪
+* Workout is self maintenance!💪🏃‍♂️
 
 Feel free to contact me!🤝
 
@@ -22,6 +22,6 @@ Feel free to contact me!🤝
 * Elsker computere!💻
 * At udforske naturen er min passion!🌲🥾
 * samler data via fotografering!😉📸
-* Træning er en udvidelse og veligeholdelse af dig selv!💪
+* Træning er veligeholdelse af dig selv!💪🏃‍♂️
 
 Kontakt mig endelig!🤝
