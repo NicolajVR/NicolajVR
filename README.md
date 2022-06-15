@@ -8,7 +8,7 @@
 * I love computers!💻
 * Spending time outside in the wild is a passion!🌲🥾
 * Collecting data in photographs!😉📸
-* Workout is self maintenance!💪🏃‍♂️
+* Fitness is self maintenance!💪🏃‍♂️
 
 Feel free to contact me!🤝
 
