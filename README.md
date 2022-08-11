@@ -9,6 +9,7 @@
 * Spending time outside in the wild is a passion!🌲🥾
 * Collecting data in photographs!😉📸
 * Fitness is self maintenance!💪🏃‍♂️
+* Visual Learner 👀
 
 Feel free to contact me!🤝
 
@@ -23,5 +24,6 @@ Feel free to contact me!🤝
 * At udforske naturen er min passion!🌲🥾
 * samler data via fotografering!😉📸
 * Træning er veligeholdelse af dig selv!💪🏃‍♂️
+* Visuel lærende 👀
 
 Kontakt mig endelig!🤝
