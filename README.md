@@ -2,7 +2,7 @@
 🇺🇸 HELLO & WELCOME TO MY PROFILE!👋
 ------------------------------------------------
 * My name is Nicolaj😄
-* I am 22🎉
+* I am 23🎉
 * I live in Copenhagen🌇
 * Currently a student @TEC👨‍🎓
 * I love technology!💻
@@ -17,7 +17,7 @@ Feel free to contact me!🤝
 🇩🇰 HEJ & VELKOMMEN TIL MIN PROFIL!
 ------------------------------------------------
 * Mit navn er Nicolaj😄
-* Jeg er 22🎉
+* Jeg er 23🎉
 * Jeg bor i Stor København🌇
 * Studerende @TEC👨‍🎓
 * Elsker teknologi!💻
