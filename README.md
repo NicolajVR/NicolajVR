@@ -4,7 +4,7 @@
 * My name is Nicolaj😄
 * I am 23🎉
 * I live in Copenhagen🌇
-* Currently a student @TEC👨‍🎓
+* Graduated from @TEC👨‍🎓
 * I love technology!💻
 * Spending time outside in the wild is a passion!🌲🥾
 * Collecting data in photographs!😉📸
@@ -19,7 +19,7 @@ Feel free to contact me!🤝
 * Mit navn er Nicolaj😄
 * Jeg er 23🎉
 * Jeg bor i Stor København🌇
-* Studerende @TEC👨‍🎓
+* færdiguddannet fra @TEC👨‍🎓
 * Elsker teknologi!💻
 * At udforske naturen er min passion!🌲🥾
 * samler data via fotografering!😉📸
